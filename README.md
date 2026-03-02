@@ -6,5 +6,4 @@
   - Telegram: `@dimim0s`
   - Email: `dimimos@ierotheos.xyz`
 - 😄 **Pronouns:** he/him  
-- ⚡ **Fun fact:** I'm a person… (of course 😄)
-
+- ⚡ **Fun fact:** I love hvh in csgo legacy
